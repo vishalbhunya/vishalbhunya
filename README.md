@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Vishal Bhunya - @vishalbhunya
-- 👀 I’m interested in Designing & Developing
-- 🌱 I’m a graduate from Bachelor of Science in Information Technology
+- 👀 I’m passionate for creative Designing & Developing
+- 🌱 I’m a Bachelor in Information Technology from Mumbai University
 - 💞️ I’m looking to collaborate on new exiting projects
 - 📫 How to reach me, Telegram link : @vishalbhunya
 
